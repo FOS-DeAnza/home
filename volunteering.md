@@ -1,5 +1,5 @@
 # Civic Engagement Volunteer Events
-The followings are list in reverse chronological order
+The followings are listed in reverse chronological order
 
 * 10/31/2025, ? person, HOC5 Harvest Night , Home of Christ Church, Cupertino.
 * 10/19/2025, ? person, Lunch cooking, serving and cleaning up, Home of Christ Church, Cupertino.
