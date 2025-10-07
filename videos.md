@@ -13,6 +13,6 @@
 * [學生團契 2024年10月17日 專訪](https://www.youtube.com/watch?v=Fh-XXScNz00) Allison, William, Aaron, Luke, Jamie, 2024-10
 
 ### 受洗見証
-* [Aaron 受洗見証](https://www.youtube.com/watch?v=F7X5KOpouxo）Aaron Sheng， 2025-6-8
+* [Aaron 受洗見証](https://www.youtube.com/watch?v=F7X5KOpouxo) Aaron Sheng， 2025-6-8
 * [Alex 受洗見証](https://www.youtube.com/watch?v=kx4fjizjvcU) Alex Tsai, 2025-4-20
 * [Simon 受洗見証](https://www.youtube.com/watch?v=UTgpF83GTJY) Simon Xu, 2025-3-9
