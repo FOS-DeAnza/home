@@ -1,5 +1,4 @@
-# Civic Engagement Volunteer Events Hosted by De Anza Fellowship of Overseas Students
-
+# Civic Engagement Volunteer Events
 The followings are list in reverse chronological order
 
 * 10/31/2025, ? person, HOC5 Harvest Night , Home of Christ Church, Cupertino.
