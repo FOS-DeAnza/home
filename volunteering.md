@@ -2,7 +2,9 @@
 
 The followings are list in reverse chronological order
 
-* 9/27/2025, 12 person  [Clean up after St Jude Walk](https://photos.google.com/share/AF1QipNunDBP4wbiKVojonLsrRmRgpSzWzfauroKPnRF32TTugQ2uhwAwqvTJatgkv1hvA?key=bkpIZEdzd1JiQUVfdUlvem95RWxiWjdDaUl3c3Zn), San Francisco Zoo.
+* 10/31/2025, ? person, HOC5 Harvest Night , Home of Christ Church, Cupertino.
+* 10/19/2025, ? person, Lunch cooking, serving and cleaning up, Home of Christ Church, Cupertino.
+* 9/27/2025, 12 person,  [Clean up after St Jude Walk](https://photos.google.com/share/AF1QipNunDBP4wbiKVojonLsrRmRgpSzWzfauroKPnRF32TTugQ2uhwAwqvTJatgkv1hvA?key=bkpIZEdzd1JiQUVfdUlvem95RWxiWjdDaUl3c3Zn), San Francisco Zoo.
 * 6/28/2025, 3 person, [Traffic Control for Christian Group Talent Show](https://photos.google.com/share/AF1QipO4nUWJDGdhEDuHMVi9fihlEDutIZfmLgoT965AfDBGhhu03Ef7XGQEj6RTSJrcMQ?key=V1l1RjNoZ3RnUXZHaWdFX1MzNWJQWTZGUllrVUZR), Home of Christ Church, Cupertino.
 * 6/8/2025, 11 person, [Lunch cooking, serving and cleaning up](https://photos.google.com/share/AF1QipPx1jdylMNK89WzCnhaavQBDPVMCJFWk_kP4jGYvcNSzn_buiJ8O19B-8rgfJDuvA?key=akNtNUJROHdmaGpJd2ZINTlPc1Z3UWdLNUlkQ0lR), Home of Christ Church, Cupertino.
 * 5/25/2025, 10 person, [BBQ Cooking and clean up](https://photos.google.com/share/AF1QipM39mBFmkxggGBz87Oz-tYQFvzUNyD5R0ef0gbG4SwjlUfm2sr3Ska5jzJ486nBgw?key=dWxSbU5NOHhkVzVDTC1mcnhGcEVwQ2dGZ2c5X0t3), Home of Christ Church, Cupertino.
