@@ -1,6 +1,7 @@
 
 ## 2025-2026 Academy Year
 ### 2025 Fall 
+* [Harvest Night Volunteer Plan](FOS%20-%20Harvest%20Night%20Volunteer.pdf) 2025-10-13
 * [2025 De Anza FOS 9/12 及 9/26 迎新活動調查問卷結果](https://docs.google.com/presentation/d/1owf93gc33jjhJgKKVTie6-cgsqXnh2IKGsN_t96XN1c) 2025-10
 
 ## 2024-2025 Academy Year
