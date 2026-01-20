@@ -1,8 +1,8 @@
 # 志工活動照片
 The followings are listed in reverse chronological order
 
-* 10/31/2025, ? person, HOC5 Harvest Night , Home of Christ Church, Cupertino.
-* 10/19/2025, ? person, Lunch cooking, serving and cleaning up, Home of Christ Church, Cupertino.
+* 10/31/2025, ? person, [HOC5 Harvest Night](https://photos.app.goo.gl/tptXjiFZRBnAqvAC6), Home of Christ Church, Cupertino.
+* 10/19/2025, ? person, [Lunch cooking, serving and cleaning up](https://photos.app.goo.gl/3h4jGJsX3wd5xtBN6), Home of Christ Church, Cupertino.
 * 9/27/2025, 12 person,  [Clean up after St Jude Walk](https://photos.google.com/share/AF1QipNunDBP4wbiKVojonLsrRmRgpSzWzfauroKPnRF32TTugQ2uhwAwqvTJatgkv1hvA?key=bkpIZEdzd1JiQUVfdUlvem95RWxiWjdDaUl3c3Zn), San Francisco Zoo.
 * 6/28/2025, 3 person, [Traffic Control for Christian Group Talent Show](https://photos.google.com/share/AF1QipO4nUWJDGdhEDuHMVi9fihlEDutIZfmLgoT965AfDBGhhu03Ef7XGQEj6RTSJrcMQ?key=V1l1RjNoZ3RnUXZHaWdFX1MzNWJQWTZGUllrVUZR), Home of Christ Church, Cupertino.
 * 6/8/2025, 11 person, [Lunch cooking, serving and cleaning up](https://photos.google.com/share/AF1QipPx1jdylMNK89WzCnhaavQBDPVMCJFWk_kP4jGYvcNSzn_buiJ8O19B-8rgfJDuvA?key=akNtNUJROHdmaGpJd2ZINTlPc1Z3UWdLNUlkQ0lR), Home of Christ Church, Cupertino.
